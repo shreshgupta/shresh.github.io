@@ -1,1 +1,1 @@
-# shreshgupta.github.io/shresh.github.io/
+# shreshgupta.github.io/
